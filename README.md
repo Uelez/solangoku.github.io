@@ -1,0 +1,1 @@
+# solangoku.github.io
